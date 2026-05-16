@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency Token Sniper for liquidity sniper bot | simulation-mode & back-running, the #1 liquidity sniper bot. Includes simulation-mode and
 
 
 
